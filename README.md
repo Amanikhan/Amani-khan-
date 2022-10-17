@@ -1,0 +1,2 @@
+# Amani-khan-
+Amani dawoodzai 
